@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently in class 10th <br>I love coding <br>Building new things
+I'm currently in class 11th <br>I love coding <br>Building new things
 
 
 ## 🌐 Socials:
